@@ -1,1 +1,1 @@
-fuck you, i told you to dont read you mf
+fuck you!, i told you to dont read you mf
